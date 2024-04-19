@@ -1,6 +1,6 @@
-![image](https://github.com/MrUmmataliyev/First_fuse/assets/145908814/28288dbd-a320-4e79-87fb-e6e7f45f59bc)
-![image](https://github.com/MrUmmataliyev/First_fuse/assets/145908814/d354c3e5-a298-4b17-bf01-906cb8053d0a)
-![image](https://github.com/MrUmmataliyev/First_fuse/assets/145908814/e38bd2d3-2b1c-4567-a41d-ec3ef5b3cc49)
-![image](https://github.com/MrUmmataliyev/First_fuse/assets/145908814/9564d83b-d454-4f9b-8553-bc70c657e354)
-![image](https://github.com/MrUmmataliyev/First_fuse/assets/145908814/63ed4279-4dbb-4e1c-be3a-25e597846022)
-![image](https://github.com/MrUmmataliyev/First_fuse/assets/145908814/60154dea-28f6-4111-a3e7-03135e1671d3)
+<img width="1440" alt="image" src="https://github.com/OtabekgithubJava/expert-funicular/assets/146438558/b6b09187-b261-4dc8-9fbf-16923dde0057">
+<img width="1440" alt="image" src="https://github.com/OtabekgithubJava/expert-funicular/assets/146438558/4f462b2a-b4e4-4dbd-87a8-c83c6482f026">
+<img width="1440" alt="image" src="https://github.com/OtabekgithubJava/expert-funicular/assets/146438558/faed83c7-68b2-48ce-b28b-07c902f43cd5">
+<img width="1440" alt="image" src="https://github.com/OtabekgithubJava/expert-funicular/assets/146438558/d2688010-71a7-4668-83a0-80f2c03d78e7">
+<img width="1440" alt="image" src="https://github.com/OtabekgithubJava/expert-funicular/assets/146438558/cfe983b9-62d5-452d-a774-121087e406e2">
+<img width="1440" alt="image" src="https://github.com/OtabekgithubJava/expert-funicular/assets/146438558/54e0da29-c993-414d-bb6c-0b1a926af4c5">
